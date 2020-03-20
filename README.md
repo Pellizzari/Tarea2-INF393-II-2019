@@ -4,4 +4,4 @@ Integrantes:
 * Cristian Vallejos 
 * Giorgio Pellizzari 
 
-Video:
+Video:https://youtu.be/nREFT4hw8j8 
